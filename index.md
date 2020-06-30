@@ -6,3 +6,5 @@ Es sind immer abgeschlossene Folgen.
 * Don Chapman
 * Cohen
 * Philipp
+> Scheisse, Scheisse, Scheisse
+> Cohen, ich bringe Dich um !
