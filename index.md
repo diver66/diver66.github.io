@@ -8,3 +8,4 @@ Es sind immer abgeschlossene Folgen.
 * Philipp
 > Scheisse, Scheisse, Scheisse
 > Cohen, ich bringe Dich um !
+<img src="https://www.buecher-magazin.de/files/imagecache/highslide_full/cover/dorian_hunter_20_-_devils_hill.jpg"/>
